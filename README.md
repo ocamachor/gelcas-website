@@ -4,4 +4,4 @@
 
 Visite nuestras redes sociales en
 [Facebook](https://facebook.com/gelcasimportacaiones) y también en
-[Instagram](https://instagram.com-gelcasimportaciones).
+[Instagram](https://instagram.com/gelcasimportaciones).
